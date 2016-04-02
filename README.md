@@ -15,4 +15,4 @@ Listen dude
 ### Coolers
 #### Coolers
 ##### Coolers
-Why _now_ when #we# are /fizzled/ &hghg&?
+Why _now_ when we are fizzled?
